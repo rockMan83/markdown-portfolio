@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[Kotos vomiting from eyes](https://frinkiac.com/video/S13E17/5AnX458H8lcmfmNyET_-wQlgVps=.gif)
