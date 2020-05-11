@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I wouldn't call my attributes *awesome*, but some of them are playing **multiple instruments** (*guitar*, *keyboard*, *drums*), lots of experience with **non-linear editors** such as *Final Cut Pro*, *Adobe Premiere*, *Colorfront Transkoder* and *DVS Clipster*, and some familiarity with **application development** using the *python* language. 
